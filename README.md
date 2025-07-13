@@ -1,6 +1,6 @@
 Vias con inclinación mayor al 20% - tener cuidado con estas vías
 
-Taller 3 comuna 1
+Taller 3 comuna 1 Grupo 7
 
 Catalina Garcia -
 David Molina -
